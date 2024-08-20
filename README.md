@@ -5,7 +5,7 @@
 -  00001107097034sp@al.educacao.sp.gov.br
 - 😄 
 - ⚡ Fun fact: ...
-- ![]()![image](https://github.com/user-attachments/assets/0062fc35-3412-4bb0-9c44-919eac292511)
+- ![](https://media1.tenor.com/m/lswmXjc0QegAAAAC/silvio-santos-host.gif)
 
 
 <!---
